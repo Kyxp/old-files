@@ -1,2 +1,0 @@
-# old-game
-Fiora High
